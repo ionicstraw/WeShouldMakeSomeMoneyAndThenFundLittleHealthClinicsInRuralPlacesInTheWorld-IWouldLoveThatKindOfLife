@@ -9,3 +9,5 @@ b4 i go to sleep -- ok i will mention like 2 sentences about this in my personal
 using [starlink](https://en.wikipedia.org/wiki/Starlink) to submit clinical sequencing data (maybe from nanopore) into diagnosis cloud pipelines in remote parts of the world where internet is limited, that's the general idea
 
 could be a paper i dunno, i dunno if this idea exists
+
+we should buy some property in like france ... south of france, theres some show on netflix where they buy real estate in france forgot what its called, i should watch it to escape the news of whats going on here
