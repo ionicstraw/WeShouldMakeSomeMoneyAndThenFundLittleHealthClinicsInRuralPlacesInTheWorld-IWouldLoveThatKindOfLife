@@ -13,3 +13,5 @@ could be a paper i dunno, i dunno if this idea exists
 we should buy some property in like france ... south of france, theres some show on netflix where they buy real estate in france forgot what its called, i should watch it to escape the news of whats going on here
 
 my purpose for taking ap euro was in hs in part bc i was like, eventually, im going to get out of here. sudip's friend a while ago did his m.s. in stats in oxford and i was like omg T_T the stupid transcript otherwise i could have done something like that. i can out arrogant the french 😂
+
+also could be like i dunno investors, in like coffee shops in nyc/nj, or even chai houses, that could be fun
